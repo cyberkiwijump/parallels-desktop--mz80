@@ -1,4 +1,4 @@
-# 
+# Photoshop Express for macOS rare Utility: text-animation & social-media-export offers the most advanced Photoshop Express for macOS utility, with text-animation and
 
 
 
